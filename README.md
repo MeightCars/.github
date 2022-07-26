@@ -1,1 +1,1 @@
-# .github
+Meight (https://www.meight.co.ke/) is revolutionizing the car rental industry. We're transforming the way people rent cars. We're introducing peer-to-peer car sharing, which allows car owners to profit from their parked vehicles. This innovative mobility option excites me; check it out below. #people #cars #carshare #carsharing
